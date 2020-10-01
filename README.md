@@ -1,2 +1,2 @@
 # CodeWithHarry - A Legend Who Transformed The Lives Of Many Students
-A beautiful gift to CodewithHarry. Hope you love it
+An amazing gift to our legend CodewithHarry. Hope you love this !
